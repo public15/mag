@@ -24,3 +24,5 @@ Stay at the forefront of magnetic component technology advancements.
 Call to Action
 Begin your search today and experience the future of magnetic component discovery.
 "Search Magnetic Components Now"
+
+https://magdir.com/
